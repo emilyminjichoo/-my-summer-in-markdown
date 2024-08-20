@@ -1,6 +1,8 @@
 # my-summer-in-markdown
 
 ## Summer Activities: I went to Disneyland with my friends, the day before school, for a birthday. She is a really close friend, so I wanted to celebrate before school. Another thing that I did over the summer was going to Las Vegas and Utah. I first went to Las Vegas with my family, but then, I met my friends at Zion Canyon and slept at their Airbnb, which was really nice at Utah. 
+   [show](https://lh3.googleusercontent.com/p/AF1QipOhUT6irsqzFGLW7NJk8srnPwBs1M1U0CMnoqdq=s680-w680-h510)
+
 
 ## Goals for the School Year: My goal is quite common, but I would like to get amazing scores for my APs and earn great grades for every class. I want to get through this school year and have a fun time and actually learning for life, not just for school. 
 
